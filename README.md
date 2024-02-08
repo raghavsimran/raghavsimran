@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @raghavsimran
+  - 😄 Pronouns: she/her
